@@ -1,0 +1,1 @@
+# veriyapilari ödev içerikleridir
